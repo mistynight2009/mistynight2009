@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @mistynight2009
 - 👀 I’m interested in in graphic computing
-- 🌱 I’m currently learning raphic computing
+- 🌱 I’m currently learning graphic computing
 - 💞️ I do not looking to collaborate on 
 - 📫 How to reach me by whatsapp my number is +55 66 9253-8658
 
